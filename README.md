@@ -1,1 +1,0 @@
-# Stige (Wings on Wheels)
